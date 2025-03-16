@@ -3,4 +3,4 @@ hii!! u can call me **leo**, *ey/xe* pronouns plz
 
 w2i, possible slow responses..
 
-<sub>liu</sub> <sub>qingge</sub> <sub>art</sub> <sub>by</sub> <sub>me,</sub> <sub>ik its not the greatest dont tell me plzz</sub>
+<sub>liu</sub> <sub>qingge</sub> <sub>art</sub> <sub>by</sub> <sub>me,</sub> <sub>ik its not the greatest dont tell me plzz /gen</sub>
